@@ -1,16 +1,31 @@
-## Hi there 👋
+## ˖°📷༘ ִ ࣪ ˖ ࣪ ᨰꫀᥣᥴ᥆ꩇꫀ ! ᰔ ִ ׄ 
 
-<!--
-**RetroRockedSYS/RetroRockedSYS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="864" height="385" alt="Untitled50_20251115114520 wide" src="https://github.com/user-attachments/assets/62579449-e637-4ad4-b565-cf2e24add43e" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+─── ⋆⋅☆⋅⋆ ───
+
+
+He/they |⚥💛💜💛☿|
+
+
+DID SYSTEM!!
+
+
+MINORS DNI
+
+
+𓂃🖌ARTIST🎨
+
+
+Bodily 21
+
+
+TAKEN
+
+
+────୨ৎ────
+
+
+<img width="2447" height="2824" alt="Untitled51_20251115162327" src="https://github.com/user-attachments/assets/1a02f4f3-7f28-4c0c-a74c-3594c42df433" />
