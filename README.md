@@ -134,7 +134,11 @@ Bisexual Man with a fondness for femboys
 
 ✎ᝰ.
 
-<img width="600" height="628" alt="20241028_213202" src="https://github.com/user-attachments/assets/16bb5625-980d-42f3-bafb-ce4f7d91e5a0" />
+
+[Drawing is a WIP]
+
+<img width="2447" height="2824" alt="image" src="https://github.com/user-attachments/assets/1e59d9c5-b769-4c03-adb8-5e1ba63a9285" />
+
 
 ✎ᝰ.
 
