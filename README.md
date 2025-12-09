@@ -26,6 +26,7 @@ DNI MINORS!!
 
 ─── ⋆⋅☆⋅⋆ ───
 
+Fresh!Sans Alter
 
 He/they |⚥💛💜💛☿|
 
@@ -124,6 +125,8 @@ Gay/Asexual/Intersex
 
 ─── ⋆⋅☆⋅⋆ ───
 
+Greaser!Sans Alter
+
 He/Him ♂
 
 Bisexual Man with a fondness for femboys and fat tits.
@@ -151,6 +154,8 @@ Bisexual Man with a fondness for femboys and fat tits.
 ✎ᝰ.
 
 ─── 𓂃🖌 ───
+
+Ink!Sans Alter
 
 He/It/Them ☿
 
