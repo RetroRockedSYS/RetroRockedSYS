@@ -169,4 +169,4 @@ Pansexual/AroAce
 ✎ᝰ.
 
 
-BIO IS A WIP
+<img width="780" height="129" alt="image" src="https://github.com/user-attachments/assets/498dcf9b-40e0-43af-9c09-6dbf2cc8bd66" />
