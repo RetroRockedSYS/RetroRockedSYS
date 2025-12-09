@@ -29,7 +29,7 @@ DNI MINORS!!
 
 He/they |⚥💛💜💛☿|
 
-Gay/Asexual
+Gay/Asexual/Intersex
 
 𓂃🖌ARTIST🎨
 
