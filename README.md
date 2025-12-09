@@ -126,7 +126,7 @@ Gay/Asexual/Intersex
 
 He/Him ♂
 
-Bisexual Man with a fondness for femboys
+Bisexual Man with a fondness for femboys and fat tits.
 
  ݁⋆⭒˚.⋆Astral Sea Dragon ݁⋆⭒˚.⋆
 
