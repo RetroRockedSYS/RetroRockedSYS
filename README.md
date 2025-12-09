@@ -148,7 +148,7 @@ Bisexual Man with a fondness for femboys
 
 ─── 𓂃🖌 ───
 
-He/It/Them
+He/It/Them ☿
 
 Pansexual/AroAce
 
