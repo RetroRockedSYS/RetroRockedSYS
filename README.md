@@ -138,9 +138,10 @@ Bisexual Man with a fondness for femboys and fat tits.
 ✎ᝰ.
 
 
-[Drawing is a WIP]
+[Drawing was sadly corrupted so it will never be finished]
 
-<img width="2447" height="2824" alt="image" src="https://github.com/user-attachments/assets/1e59d9c5-b769-4c03-adb8-5e1ba63a9285" />
+
+<img width="2447" height="2824" alt="Untitled54_20260112144743" src="https://github.com/user-attachments/assets/da3dd7d1-00cf-4fa1-b261-bed9a428e205" />
 
 
 ✎ᝰ.
