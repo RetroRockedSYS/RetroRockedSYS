@@ -28,7 +28,7 @@ DNI MINORS!!
 
 Fresh!Sans Alter
 
-He/they |⚥💛💜💛☿|
+He/they/We |⚥💛💜💛☿|
 
 Gay/Asexual/Intersex
 
