@@ -4,7 +4,7 @@
 
 ✎ᝰ.
 
-CHILDHOOD TRAMA BASED DID SYSTEM
+CHILDHOOD TRAMA BASED DID SYSTEM //therapist and pyciatrist is actively working on getting us dignosed correctly//
 
 We are bodily 21
 
