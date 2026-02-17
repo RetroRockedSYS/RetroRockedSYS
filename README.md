@@ -10,7 +10,7 @@ We are bodily 21
 
 Taken IRL 
 
-DNI MINORS!!
+DNI MINORS!! //if you are on the 18+ servers on PT as a child we will block you. you shouldn't be there. also the adults who defend them being there and are actively friend with minors on the 18 server, your weird and you will also be blocked by us. fuck off//
 
 ✎ᝰ.
 
