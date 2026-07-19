@@ -41,6 +41,9 @@ Gay/Asexual/Intersex
 
 <img width="202" height="129" alt="image" src="https://github.com/user-attachments/assets/94af57cb-7788-46a1-a71f-18dbbdfa73a0" />
 
+✎ᝰ.
+
+<img width="2021" height="2522" alt="image" src="https://github.com/user-attachments/assets/223ed0a8-d7af-4cc8-b733-de9d292af42d" />
 
 
 ✎ᝰ.
