@@ -14,7 +14,7 @@ INT UNDERTALE AU/SANS AU FANS!! //more will be added to this list.
 
 DNI MINORS, ENDO SYSTEMS, PEDOPHILES, T.R.A.S.H, PROSHPPERS/DARKSHIPPERS, AND ZOOPHILES !! 
 
-We play pony town a fair bit! you can take inspo from our ponys we don't mind, BUT do not fully copy them please! <3
+We play pony town a fair bit! you can take inspo from our ponys we don't mind, BUT do not fully copy them please! Also, If you are new to the game please feel free to ask me questions, I am fairly friendly! <3
 
 ✎ᝰ.
 
