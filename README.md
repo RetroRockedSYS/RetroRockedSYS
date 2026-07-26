@@ -65,11 +65,11 @@ first consept sheet made for Confetti, also made by us!
 
 ✎ᝰ.
 
-<img width="269" height="129" alt="image" src="https://github.com/user-attachments/assets/dd81192a-310a-4100-8416-8f020d29734e" />
+<img width="2021" height="2522" alt="image" src="https://github.com/user-attachments/assets/223ed0a8-d7af-4cc8-b733-de9d292af42d" />⠀⠀⠀⠀⠀⠀
 
 ✎ᝰ.
 
-<img width="2021" height="2522" alt="image" src="https://github.com/user-attachments/assets/223ed0a8-d7af-4cc8-b733-de9d292af42d" />⠀⠀⠀⠀⠀⠀
+<img width="269" height="129" alt="image" src="https://github.com/user-attachments/assets/dd81192a-310a-4100-8416-8f020d29734e" />
 
 ✎ᝰ.
 
