@@ -41,6 +41,13 @@ Gay/Asexual/Intersex
 
 ────୨ৎ────
 
+✎ᝰ.
+
+unfinished consept sheet for Confetti, made by us!
+<img width="3009" height="3008" alt="Untitled8_20260521072630" src="https://github.com/user-attachments/assets/cf855400-0f47-4739-a794-0997f161d988" />
+
+✎ᝰ.
+
 <img width="202" height="129" alt="image" src="https://github.com/user-attachments/assets/94af57cb-7788-46a1-a71f-18dbbdfa73a0" />
 
 ✎ᝰ.
