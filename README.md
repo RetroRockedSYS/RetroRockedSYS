@@ -51,11 +51,7 @@ unfinished consept sheet for Confetti, made by us!
 <img width="3009" height="3008" alt="Untitled8_20260521072630" src="https://github.com/user-attachments/assets/cf855400-0f47-4739-a794-0997f161d988" />
 
 ✎ᝰ.
-
-<img width="2021" height="2522" alt="image" src="https://github.com/user-attachments/assets/223ed0a8-d7af-4cc8-b733-de9d292af42d" />
-
-✎ᝰ.
-
+first consept sheet made for Confetti, also made by us!
 <img width="2447" height="2824" alt="Untitled51_20251115162327" src="https://github.com/user-attachments/assets/1a02f4f3-7f28-4c0c-a74c-3594c42df433" />
 
 ✎ᝰ.
@@ -70,7 +66,10 @@ unfinished consept sheet for Confetti, made by us!
 
 <img width="269" height="129" alt="image" src="https://github.com/user-attachments/assets/dd81192a-310a-4100-8416-8f020d29734e" />
 
-⠀⠀⠀⠀⠀⠀⠀⠀
+✎ᝰ.
+
+<img width="2021" height="2522" alt="image" src="https://github.com/user-attachments/assets/223ed0a8-d7af-4cc8-b733-de9d292af42d" />⠀⠀⠀⠀⠀⠀
+
 ✎ᝰ.
 
 ─── ⋆⋅☆⋅⋆ ───
