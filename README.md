@@ -14,6 +14,8 @@ INT UNDERTALE AU/SANS AU FANS!! //more will be added to this list.
 
 DNI MINORS, ENDO SYSTEMS, PEDOPHILES, T.R.A.S.H, PROSHPPERS/DARKSHIPPERS, AND ZOOPHILES !! 
 
+We are Multishippers! We do not mind most ships! Here are some of our fav's tho! NightFresh, ErrorFresh, ReaperGeno, bad sans poly, any ship that includes Fresh legit!
+
 We play pony town a fair bit! you can take inspo from our ponys we don't mind, BUT do not fully copy them please! Also, If you are new to the game please feel free to ask us questions, we are fairly friendly! <3
 
 ✎ᝰ.
